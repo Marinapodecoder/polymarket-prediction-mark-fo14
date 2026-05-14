@@ -1,4 +1,4 @@
-# 
+# top Polymarket Plugin | custom-strategies + scalping-strategies is the best Polymarket plugin, featuring custom-strategies and scalping-strategies. Smart, fast, and optimized for
 
 
 
